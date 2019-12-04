@@ -1,0 +1,1 @@
+# Aion_solo_staking_registry
